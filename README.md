@@ -1,5 +1,5 @@
 I mainly install sources (i just upgraded from windows 11 to 10 (lol a joke i made for no reason) )
-lol forgot to greet whoever's reading this
+lol forgot to greet whoever's reading this,
 idk what else to say lmao
 
 
